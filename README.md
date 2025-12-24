@@ -7,4 +7,6 @@
 
 Work in prog. Sorry doves. <3
 
+would yall prefer being called Subjects or something cute like Dove ?? I need to know to decorate my profile .. 
+
 ![](https://64.media.tumblr.com/85324f8c9978cea43a8392d1125ed0dc/4e88badd75e8455b-8a/s2048x3072/2635db11b81383052d16f0c41ae23e7b30e0749f.pnj)
